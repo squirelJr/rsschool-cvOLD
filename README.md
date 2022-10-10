@@ -31,3 +31,4 @@ E-mail : gozalishvilidavit@gmail.com
 *Georgian _ Native   
 *English _ fluent (speaking/writing)   
 *Russian _ good   
+*
